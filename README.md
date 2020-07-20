@@ -1,0 +1,2 @@
+# jetzky
+MY OWN INVENTION OF BLACKJACK 
